@@ -1,2 +1,1 @@
-# ganteng
-Wow2020
+Anda Memasuki Channel Orang Bodoh
